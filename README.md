@@ -15,6 +15,6 @@ practice, and building AI-native SaaS products.
   March 2026)
 
 Former IT Director at Amphenol Network Solutions (NYSE: APH) — 7 consecutive
-years of perfect audit scores, flat budgets, and zero-downtime ERP migrations.
+years of leading audit scores, flat budgets, and a zero-downtime ERP migrations.
 
 **Reach me:** adam@impactme.ai
